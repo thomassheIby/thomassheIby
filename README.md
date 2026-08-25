@@ -30,4 +30,4 @@ ___
 `` *i only type like this because it's common,but i swear i type in such a fancy and clear way you'll think i came straight from the 1912's.*
 ___
 
-[](AUDHD)
+[AUDHD](AUDHD)
