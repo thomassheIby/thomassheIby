@@ -5,11 +5,10 @@ __
                                  
 
                                   
-[my sweetheart](https://github.com/FLORIAN-JAZON)
 
 [brother dear](https://github.com/ChichiiiiKimi)
 
-‘‘‘ *(only ppl I have btw.)*
+‘‘‘ *(only person I have btw.)*
 
 ***╮ 𐙚  .   _/ — “ even if we're gone,we know we've lived through,together .. „  · †╭***
 
