@@ -6,7 +6,8 @@ __
 
                                   
 
-[brother dear](https://github.com/d0lledUpDeci3t)
+[precious brother dear](https://github.com/d0lledUpDeci3t)
+[cool cool awe frie](https://github.com/gracerockysavepax)
 
 ‘‘‘ *(only person I have btw.)*
 
