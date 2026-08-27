@@ -10,7 +10,7 @@ __
 
 [cool cool awe frie](https://github.com/gracerockysavepax)
 
-‘‘‘ *(only person I have btw.)*
+‘‘‘ *(only ppl I have n love btw.)*
 
 ***╮ 𐙚  .   _/ — “ even if we're gone,we know we've lived through,together .. „  · †╭***
 
