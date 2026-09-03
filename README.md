@@ -19,7 +19,7 @@ __
 *`not actually 'rude',i'm selectively nice and there's a possibility you wouldn't be selected.`*
 
 ` *ok so
-"can I be Ur frie" I'm suspecting szpd and am not interested but sure wtv just don't expect me to int much K (I'm not even that cool why do you wanna be my friend??) I remove people freely when I'm not interested anymore sorry. it's not my fault,I quickly loose interest. you'll find a better friend lmao. unless you chat to me everyday it'll at least keep my interest up a bit! it's not that I'm fake or anything,I have preferences.and I can't control that.*
+"can I be Ur frie" i have problems with these kind of stuff.just don't expect me to stay w u for long K (I'm not even that cool why do you wanna be my friend??) I remove people freely when I'm not interested anymore sorry. it's not my fault,I quickly loose interest. you'll find a better friend lmao. unless you chat to me everyday it'll at least keep my interest up a bit! it's not that I'm fake or anything,I have preferences.and I can't control that (interp. ambiv)*
 
 `` *I only play pt soo uh I only have yt n disc I don't use Tiktok EW no hate to who uses it but as someone who used too I think it's not healthy lowk. ppl who use it IWC not that srs tbh js...don't be weird*
   
@@ -33,5 +33,3 @@ ___
 
 `` *i only type like this because it's common,but i swear i type in such a fancy and clear way you'll think i came straight from the 1912's.*
 ___
-
-[AUDHD](AUDHD)
