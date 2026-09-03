@@ -18,6 +18,8 @@ __
 
 *`not actually 'rude',i'm selectively nice and there's a possibility you wouldn't be selected.`*
 
+i LOVE self-isolating.it's so fun n better n comfortable.teehe
+
 ` *ok so
 "can I be Ur frie" i have problems with these kind of stuff.just don't expect me to stay w u for long K (I'm not even that cool why do you wanna be my friend??) I remove people freely when I'm not interested anymore sorry. it's not my fault,I quickly loose interest. you'll find a better friend lmao. unless you chat to me everyday it'll at least keep my interest up a bit! it's not that I'm fake or anything,I have preferences...sadly.i feel guilty but what can i even do?? (interp. ambiv)*
 
